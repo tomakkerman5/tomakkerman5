@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tomakkerman5
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in almost everything 
+- 🌱 I’m currently learning everything 
+- 💞️ I’m looking to collaborate on everything 
 - 📫 How to reach me tr.akkerman@gmail.com
 
 <!---
